@@ -49,3 +49,5 @@ Stephen Nemeth - Discord: @stephennemeth\_#5071
 Turjoy Paul - Discord: @Firedynex#9301
 
 Ashwin Pillai - Dicord: @Ash1729#1620
+
+Jason Dinh - Discord: Sonozaki#0017
